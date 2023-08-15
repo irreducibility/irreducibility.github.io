@@ -1,1 +1,1 @@
-# irreducibliy.github.io
+# [irreducibliy](https://irreducibliy.github.io)
